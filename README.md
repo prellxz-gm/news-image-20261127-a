@@ -6,8 +6,8 @@
 
 A dense but legible newspaper front page summing up **Friday 27 November 2026** in
 one image. Hero: tankers ablaze in the Strait of Hormuz after hitting naval
-mines. Below it, the Kuwait drone strike and the Houthi attack on Aramco's Jazan
-refinery, then a region-grouped day-in-brief band covering all 25 verified
+mines. Below it, the IRGC warning shots at a US F-16 escorting tankers SE of
+Hengam Island and Brent crude near the month's high, then a region-grouped day-in-brief band covering all 25 verified
 stories from 9 regions — plus a DATE CHECK row that names the traps (Macy's
 parade postponement = 26 Nov, Cairo tanker fire = 25 Nov) so they are never
 drawn as 27-Nov news.
